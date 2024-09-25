@@ -1,2 +1,2 @@
 # hello-world
-Heyy n-words
+Heyy poeple
